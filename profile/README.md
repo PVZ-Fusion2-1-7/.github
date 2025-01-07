@@ -10,7 +10,7 @@ Dalam artikel ini, kita akan membahas apa itu **PVZ FUSION 2.1.7**, fitur-fitur 
 
 Perbedaan utama antara game PVZ resmi dan **PVZ FUSION 2.1.7** adalah bahwa versi ini menggabungkan inovasi dari penggemar, menawarkan mode permainan baru, peningkatan tanaman, dan perbaikan visual. Pembaruan ini juga memperkenalkan perubahan keseimbangan dan jenis zombie baru, yang membuat permainan lebih menantang dan menarik.
 
-## [LINK DOWNLOAD PVZ FUSION 2.1.7](https://pvzfusionapk.io/)
+## [LINK DOWNLOAD PVZ FUSION 2.1.7](https://pvzfusionapk.io/id)
 
 ![image](https://github.com/user-attachments/assets/4c0b0855-4ed1-47b3-9f3a-6b033f76c902)
 
